@@ -18,8 +18,8 @@
 2. Ajouter les oeufs et mélanger rapidement.
 3. Verser le lait petit a petit tout en mélangeant pour éviter les grumeaux
 4. Ajouter le beurre fondu et laisser reposer la pâte pendant 5 minutes.
-5. Faire chauffer une poêle avec beaucoup d'huile.
-6. Verser toute la pate dans la poêle et cuire pendant 30 minutes sans retourner.
+5. Faire chauffer une poêle avec un peu d'huile.
+6. Verser une petite quantité dans la poêle et cuire pendant quelques minutes sans oublier de retourner.
 7. Retirer la crêpe et servir froid avec du citron et du chocolat.
 
 ## Conseils
